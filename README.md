@@ -1,2 +1,2 @@
 # belajar
-progres belajar
+semester 1
